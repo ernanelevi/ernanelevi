@@ -2,5 +2,5 @@
 
 ### Aqui está algumas informações interessantes:
 #### 🎓 Link Currículo Lattes: http://lattes.cnpq.br/4597377320414091
-#### 💼 Link Linkedin: www.linkedin.com/in/levi-ernãne-alves-dos-santos-40b35b365
+#### 💼 Link Linkedin: www.linkedin.com/in/leviernane
 #### 📸 Link Instagram: https://www.instagram.com/ernanelevi?igsh=MXQ0c3NiaGc1ZWp2cg==
